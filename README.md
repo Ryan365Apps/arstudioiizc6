@@ -1,1 +1,0 @@
-# arstudioiizc6
